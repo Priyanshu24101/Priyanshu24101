@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Priyanshu24101
+- 👋 Hi, I’m Priyanshu Sharma
 - 👀 I’m interested in video games
 - 🌱 I’m currently persuing B.Tech from IIIT NAYA RAIPUR
 - 
